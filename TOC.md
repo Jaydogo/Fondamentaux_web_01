@@ -14,7 +14,7 @@
 
 ### c) ASCII
 
-## III°/
+## III°/ Dans la pratique
 
 ### a)
 
